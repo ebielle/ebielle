@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **eryblongo@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QXDwYvQZjiqtt9i2E4i3NQdxoXVKHbaA/view?usp=sharing](https://drive.google.com/file/d/1QXDwYvQZjiqtt9i2E4i3NQdxoXVKHbaA/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cZP0jq1qoHcw5O0XWzsv_7j1wdCnjjC9/view?usp=drive_link](https://drive.google.com/file/d/1cZP0jq1qoHcw5O0XWzsv_7j1wdCnjjC9/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
