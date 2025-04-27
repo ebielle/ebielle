@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Erika</h1>
 <h3 align="center">Junior Java Backend Developer</h3>
 
-- 🌱 I’m currently studying **Backend with Develhope**
+- 🌱 I’ve studied **Backend with Develhope**
 
 - 📍 I'm from **Milan, Italy**
 
